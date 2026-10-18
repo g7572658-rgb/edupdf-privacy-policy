@@ -1,0 +1,1 @@
+# edupdf-privacy-policy
